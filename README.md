@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_2b.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_2b.png)
 
 [byi](https://hylics.straw.page/) · [s.pge](https://ng.straw.page/) · [atabook](https://kikuo.atabook.org) · [tumblr](https://coronationday.tumblr.com/) · [ask 4 art]() ⠀†⠀ 24 · she / he · autistic + schizo + OSDD · EN + 日本語
 
@@ -9,4 +9,4 @@ please don't ask for my discord, i'll offer it to you if i feel comfortable. tum
 i don't beef with people on pony town. if you think you recognize me for something negative you  
 are likely mistaking me for someone else. i only hide minors & i have no qualms with any pt users
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_1c.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_1c.png)
