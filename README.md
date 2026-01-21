@@ -7,7 +7,7 @@ a bit hard for me to make immediate friends with people on pony town, it's nothi
 please don't ask for my discord, i'll offer it to you if i feel comfortable. tumblr mutuals are A - OK!
 
 i don't beef with people on pony town. if you think you recognize me for something negative you  
-are likely mistaking me for someone else. i only hide minors & i have no qualms with any pt users
+are likely mistaking me for someone else. i only hide minors & i have no qualms with any pt users  
 don't approach me just because you ship your character skin with mine. weird and uncomfortable
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_1c.png)
