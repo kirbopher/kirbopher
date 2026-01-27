@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_2b.png)
 
-[byi](https://hylics.straw.page/) · [s.pge](https://ng.straw.page/) · [atabook](https://kikuo.atabook.org) · [tumblr](https://overkill.tumblr.com/) · [ask 4 art]() ⠀†⠀ 24 · she / he · autistic + schizo + OSDD · EN + 日本語
+[byi](https://wlw.straw.page/) · [s.pge](https://ng.straw.page/) · [atabook](https://kikuo.atabook.org) · [tumblr](https://overkill.tumblr.com/) · [ask 4 art]() ⠀†⠀ 24 · she / he · autistic + schizo + OSDD · EN + 日本語
 
 don't interact if you were born after Super Mario Galaxy released. generally open to conversation  
 a bit hard for me to make immediate friends with people on pony town, it's nothing personal . :-)  
