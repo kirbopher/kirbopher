@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_2b.png)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀ [ABOUT](https://cpu.straw.page/) ⠀·⠀ [ATABOOK](https://kikuo.atabook.org) ⠀· ⠀†⠀ 24 · autistic + schizo · EN + 日本語
+⠀⠀⠀⠀⠀⠀⠀⠀⠀ [ABOUT](https://cpu.straw.page/) ⠀·⠀ [ATABOOK](https://kikuo.atabook.org) ⠀· ⠀†⠀ 24 ⠀·⠀ autistic + schizo ⠀·⠀ EN + 日本語
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀ Don't interact if you were born after Super Mario Galaxy released (07)  
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀ generally open to conversation, but I sometimes struggle with people.
