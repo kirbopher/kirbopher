@@ -7,6 +7,6 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ I don't beef with anyone on Pony Town. If you think you recognize me  
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ for something negative, you are likely mistaking me for someone else.  
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ I mostly only hide minors and I don't take issue with anyone on PT :J
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ I mostly only hide minors and I don't take issue with anyone on PT. :-J
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](kirb_1c.png)
